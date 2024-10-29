@@ -1,0 +1,1 @@
+add all the page in your website
